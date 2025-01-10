@@ -2,3 +2,4 @@
 
 by: [Dirtfoot Racing](https://www.youtube.com/@dirtfootracing8788)
 - [Cheap Chinese Diesel will it run on Waste Oil? #wasteoil #cheapchinesediesel #diesel #dfr #fryeroil ](https://youtu.be/U-gdfItIM8Y)
+- [Whats Inside a Cheap Chinese Diesel Engine](https://youtu.be/jWqgSddK_6U)
